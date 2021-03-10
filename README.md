@@ -1,5 +1,5 @@
 ###  HELLO EVERYONE! 👋
-* My name is chalita Yotduang.
+* My name is Nawaporn Wongkham-aut.
 * My nick name is Earn.
 * I'm 21 years old.
 * I'm studying at Mahasarakham University in major Business Computer. 👋
